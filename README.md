@@ -1,6 +1,6 @@
 # sus collection
 f++king kek
 
-![image](https://raw.githubusercontent.com/Magallanesmapping321/sus-collection/main/AmogUsButBad.PNG)
+![image](https://raw.githubusercontent.com/Magallanesmapping321/sus-collection/main/AmogUsButBad.png)
 
 fork this if any sussy image is missing
