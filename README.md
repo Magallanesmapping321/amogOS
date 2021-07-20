@@ -2,6 +2,6 @@
 f++king kek
 
 # Amogus of the day
-![image](https://github.com/Magallanesmapping321/sus-collection/blob/main/realsus.PNG?raw=true)
+![image](https://github.com/Magallanesmapping321/sus-collection/blob/main/stomey taws.jpg?raw=true)
 
 fork this if any sussy image is missing
